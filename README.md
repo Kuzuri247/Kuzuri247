@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kuzuri247
+- 👋 Hi, I’m Rahul 
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning to be efficient
 - 💞️ I’m looking to collaborate on projects
